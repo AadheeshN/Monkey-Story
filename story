@@ -1,1 +1,1 @@
-Monkey tries to climb a tree, it slips and falls.  Bears and eagles laugh at it.
+Monkey tries to climb a tree, it slips and falls into the lake.  Bears and eagles laugh at it.  It starts to rain on the monkey.
